@@ -54,6 +54,7 @@ Made by Kartik Soni, Shashwat Jain, Meet Patel
 Feel Free to contact me on:
   
   Gmail: kartikksoni0@gmail.com
+         shashwatjain8733@gmail.com
   
   Instagram: @kartikksoni._
 
